@@ -1,1 +1,2 @@
-![github-banner](https://github.com/user-attachments/assets/98381fc0-9d09-474c-b07c-faf18b620128)
+
+![dmg github banner](https://github.com/user-attachments/assets/731cfc23-94fd-4fa5-88fe-36c53b96a860)
